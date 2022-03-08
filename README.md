@@ -1,2 +1,2 @@
-#Óscar Bermejo Domínguez
+#ÓSCAR BERMEJO DOMÍNGUEZ
 
